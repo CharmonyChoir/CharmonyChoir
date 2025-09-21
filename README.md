@@ -1,10 +1,9 @@
-<img src="https://64.media.tumblr.com/e1cb81a01bdd10f2e28e6a92cb2a3961/649e5ceaae3986a5-20/s1280x1920/6f0d9bf53f7a470eb5f6a87b61aa4c693c6fd2bf.pnj"/>
-<img src="https://64.media.tumblr.com/33e634ce307dfdf4b3fa4f1381584683/649e5ceaae3986a5-1b/s1280x1920/5722a8b5b72d6843fef1f54ff868858e683a8d7f.gifv"/>
-<img src="https://64.media.tumblr.com/e1cb81a01bdd10f2e28e6a92cb2a3961/649e5ceaae3986a5-20/s1280x1920/6f0d9bf53f7a470eb5f6a87b61aa4c693c6fd2bf.pnj"/>
+<p align="center">
+<img src="https://64.media.tumblr.com/735f978288e8ebdd7e83cf7fa26a3cd9/0168fb3443ff4286-a2/s1280x1920/a338bc035363b0ab65af468384a3a4401ba6742e.gifv">
   <div align="center"
 
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-Graphic credits goes to [sweetnusshoyo](https://www.tumblr.com/sweetnusshoyo/768558162496372736/sunday-hsr-tumblr-layout)
+Layout by [me](https://www.tumblr.com/check1t/795306635658723328/sunday-tumblr-layout)
 
-<img src="https://64.media.tumblr.com/418a385081f3d7583ed4daf31a9d1519/649e5ceaae3986a5-61/s1280x1920/c1e7e0021ae7ba83df701fa610bdc0c3f9b82208.pnj"/>
+<img src="https://media.discordapp.net/attachments/1013237702587580446/1419324432568029204/sunday_plain.png?ex=68d15862&is=68d006e2&hm=a720b077e90e449b05cb41cb1872af1440dc35a177b1551dea6cf5bc46dc2660&=&format=webp&quality=lossless&width=1408&height=589"/>
